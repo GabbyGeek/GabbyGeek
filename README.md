@@ -14,7 +14,7 @@ Hello 🌎! I'm Gabriela Bo, Mexican 🇲🇽, Back End Developer in Training - 
 - 👯 I’m looking to collaborate on: You can contact me for collaboration 😉
 
 - 📫 How to reach me: You can write me trough here or my social networks.
-- 😄 Pronouns: ...
+- 😄 Pronouns: She, Her.
 - ⚡ Fun fact: -->  I'm secretly Wonder Woman, but don't tell anyone.
 
 ### Spotify Playing 🎧
